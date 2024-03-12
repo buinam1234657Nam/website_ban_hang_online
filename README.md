@@ -2,7 +2,7 @@
 # Trang chủ
 [https://github.com/buinam1234657Nam/website_ban_hang_online/assets/145453070/623e15ed-7943-47c0-ade8-8047312220aa](https://github.com/buinam1234657Nam/website_ban_hang_online/assets/145453070/1cbe65ff-2af7-42eb-a444-0fb78beecd70)
 # Sản phẩm và tìm kiếm
-https://github.com/buinam1234657Nam/website_ban_hang_online/assets/145453070/a659a665-9875-45eb-9876-e5b411d4aa5e
+[https://github.com/buinam1234657Nam/website_ban_hang_online/assets/145453070/a659a665-9875-45eb-9876-e5b411d4aa5e](https://github.com/buinam1234657Nam/website_ban_hang_online/assets/145453070/732d21ed-0f01-4772-bc8e-c468fef6a1e4)
 # Thanh toán
 https://github.com/buinam1234657Nam/website_ban_hang_online/assets/145453070/751d4aee-891c-464c-8db3-2f82987aaaa9
 # Cập nhật thông tin
